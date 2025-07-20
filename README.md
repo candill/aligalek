@@ -1,2 +1,0 @@
-# aligalek
-Nice man
